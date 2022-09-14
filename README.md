@@ -13,4 +13,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: islamhassadya11@gmail.com
 - 😄 Pronouns: HE
 - ⚡ Fun fact: I have a good heart, and 2 dogs. My 2 dogs mean more than my good heart
--->
+--> 'Just snap your fingers, It is really easy to get over you' - Snap by Rosa Linnn
